@@ -16,4 +16,4 @@ Algumas informações sobre os vídeos:
 
 Informações pessoais:
 
-- Meu linkedin: https://www.linkedin.com/in/alexiapereira/
+- Meu linkedin: https://www.linkedin.com/in/mirka-juliet-9bb590148/
